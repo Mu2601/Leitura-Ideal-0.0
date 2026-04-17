@@ -1,0 +1,1 @@
+# Leitura-Ideal-0.0
